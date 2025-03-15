@@ -1,5 +1,7 @@
 # Databox Coupons 2025 | Get 50% Off Promo Code 🔥
 
+Hello folks, Amir here.
+
 Looking for amazing coupons for Databox? You’re in luck!
 
 With discounts up to [50% off](https://databox.com?fp_ref=shadow), you can enjoy their premium dashboard and analytics tools for a fraction of the cost.
